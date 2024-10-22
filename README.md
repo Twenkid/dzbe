@@ -5,6 +5,9 @@
 
 https://eim.twenkid.com/dzbe/
 https://eim.twenkid.com/old/ezik/
+
+https://eim.twenkid.com/old/dzbe/rechnik.htm
+
 ...
 Глас 2004
 Тошко 2
