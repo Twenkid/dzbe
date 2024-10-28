@@ -9,6 +9,10 @@ https://eim.twenkid.com/old/ezik/
 
 https://eim.twenkid.com/old/dzbe/rechnik.htm
 
+Речник на един от другарите на ДЗБЕ - Константин Петров, - който беше по-строг в езикочистителството. Много добри предложения:
+http://branilnik.blogspot.com/
+Включвам и тук, за да се запазят.
+
 ...
 Глас 2004
 Тошко 2
